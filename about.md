@@ -8,8 +8,9 @@ Some information about Thawatchai!
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself.
+50/2 Chonlaphathanthabo Road Naimuang Sub-district, Amphur Muang Ubon Ratchathani,34000
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[email@domain.com](ttbiw9597@gmail.com.com)
+https://www.facebook.com/ttbiw
