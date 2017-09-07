@@ -8,7 +8,7 @@ Some information about Thawatchai!
 
 ### More Information
 
-50/2 Tha Bo irrigation road District in the city, Amphur Muang,capital District, Ubon Ratchathani,34000
+รักสนุก แต่ไม่ผูกพันธ์
 
 ### Contact me
 
