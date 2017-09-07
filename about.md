@@ -1,7 +1,7 @@
 ---
 layout: page
-title: About
-permalink: /about Thawatchai/
+title: About ttbiw4218
+permalink: /about/
 ---
 
 Some information about you!
