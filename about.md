@@ -8,7 +8,7 @@ Some information about Thawatchai!
 
 ### More Information
 
-50/2 Chonlaphathanthabo Road Naimuang Sub-district, Amphur Muang Ubon Ratchathani,34000
+50/2 Tha Bo irrigation road District in the city, Amphur Muang,capital District, Ubon Ratchathani,34000
 
 ### Contact me
 
