@@ -4,7 +4,7 @@ title: About ttbiw4218
 permalink: /about/
 ---
 
-Some information about you!
+Some information about Thawatchai!
 
 ### More Information
 
