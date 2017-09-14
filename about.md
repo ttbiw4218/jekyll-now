@@ -12,5 +12,4 @@ Some information about Thawatchai!
 
 ### Contact me
 
-[email@domain.com](ttbiw9597@gmail.com.com)
-https://www.facebook.com/ttbiw
+[https://www.facebook.com/ttbiw]
