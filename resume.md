@@ -7,3 +7,4 @@ permalink: /resume/
 ประสบการณ์ทำงานงานด้วย เรียนด้วยเหนื่อยจัง
 # Education
 เรียนวิทยาการคอมพิวเตอร์ ย้ากยาก 
+Bc.s.Computer science
